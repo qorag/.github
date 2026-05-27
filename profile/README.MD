@@ -1,1 +1,1 @@
-Meet Incord 🧠 The creative AI knowledge that evolves with you and your team. Powered by a distributed knowledge network, your agents tap into verified, real-time world data, 24/7. Decentralized. Resilient. Alive.
+The creative AI knowledge 🌐 Distributed. Always-on. Feeding your agents verified world data in real time. No gatekeepers, no downtime.
